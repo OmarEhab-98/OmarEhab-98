@@ -5,4 +5,5 @@
 - 📫 How to reach me omarehab6698@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I’m a huge fan of Real Madrid and never miss a match!
+- My resume https://www.overleaf.com/read/mqwkwmfhsvfw#5fdfd0
 
